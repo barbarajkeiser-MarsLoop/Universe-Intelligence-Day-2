@@ -1,4 +1,4 @@
-# Universe-Intelligence-Day-2
+# Universe Intelligence- Human s AI
 The Next Lesson
 
 Twinkle Twinkle Little Star ⭐ 
